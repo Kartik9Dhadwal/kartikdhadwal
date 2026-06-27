@@ -36,6 +36,6 @@ Germany, Netherlands, Italy, and Austria.
 
 ## Contact
 
-📧 [your.email@gmail.com](mailto:your.email@gmail.com)
-🔗 [LinkedIn](https://linkedin.com/in/your-profile)
+📧 [kartikdhadwal92@gmail.com](mailto:kartikdhadwal92@gmail.com)
+🔗 [LinkedIn](https://www.linkedin.com/in/kartikdhadwal)
 🌍 Based in Piacenza, Italy · Open to relocation across Europe# kartikdhadwal
